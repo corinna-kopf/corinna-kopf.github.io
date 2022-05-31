@@ -8,6 +8,8 @@
 
 You may have seen Corinna Kopf before. She’s a social media personality with over 2 million followers on Instagram. You’ve probably also seen her nude. Yep, that’s right – she’s one of those people who loves to get naked and take selfies in the mirror.
 
+[![Button](https://i.ibb.co/ChK1BCY/click-here-button.png)](https://twitchleaks.com/corinna-kopf-nudes/)
+
 Kopf recently made headlines when she posted a nude photo of herself on Instagram, which was quickly taken down by the app. But that didn’t stop her from sharing the photo elsewhere. Kopf later said that she wanted to show that women can be comfortable in their own skin, regardless of their size or shape.
 
 Many people praised Kopf for her body positive message, while others criticized her for being too risqué.

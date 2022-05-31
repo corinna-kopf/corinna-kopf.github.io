@@ -1,8 +1,8 @@
 # Corinna Kopf Nudes
 
-## [CLICK HERE TO VIEW NUDES](https://twitchleaks.com/corinna-kopf-nudes/)
+**Corinna Kopf Nudes (Onlyfans Leak) available now.**
 
-**Corinna Kopf Nudes (Onlyfans Leak).**
+## [CLICK HERE TO VIEW NUDES](https://twitchleaks.com/corinna-kopf-nudes/)
 
 ![Corinna Kopf Twitch streamer](https://twitchleaks.com/storage/corinna-kopf-model.jpg)
 
